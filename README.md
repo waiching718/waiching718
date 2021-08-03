@@ -1,4 +1,4 @@
-### Hi, I'm [Kyle][website] 👋
+### 👋 Hi, I'm [Kyle][website]. 👈 Click here to visit my website
 
 ### Connect with me:
 
